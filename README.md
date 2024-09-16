@@ -1,16 +1,17 @@
-## Hi there 👋
-
-<!--
-**SilviuShader/SilviuShader** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️
+✝️                                                       ✝️
+✝️      ~ P U T E R E A ~ ~ ~ O R T O D O X I E I ~      ✝️
+✝️                                                       ✝️
+✝️                  LICENȚĂ EUHARISTICĂ                  ✝️
+✝️                                                       ✝️
+✝️  Tămăduiţi pe cei neputincioşi, înviaţi pe cei morţi, ✝️
+✝️    curăţiţi pe cei leproşi, pe demoni scoateţi-i;     ✝️
+✝️      în dar aţi luat, în dar să daţi.                 ✝️
+✝️                                                       ✝️
+✝️  Să nu aveţi nici aur, nici arginţi, nici bani        ✝️
+✝️    în cingătorile voastre;                            ✝️
+✝️      Nici traistă pe drum, nici două haine, nici      ✝️
+✝️        încălţăminte, nici toiag;                      ✝️
+✝️          că vrednic este lucrătorul de hrana sa.      ✝️
+✝️                                                       ✝️
+✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️✝️
